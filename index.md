@@ -13,3 +13,4 @@ Sehr schoener Bondfilm
 
 > strib an einem anderen Tag
 > never look back
+> heute ist ein schoener tag zum sterben
