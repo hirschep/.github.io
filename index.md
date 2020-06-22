@@ -13,4 +13,3 @@ Sehr schoener Bondfilm
 
 > strib an einem anderen Tag
 
-
