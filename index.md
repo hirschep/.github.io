@@ -10,3 +10,6 @@ Sehr schoener Bondfilm
 * sexy
 * schlank
 * kurzhaarig
+
+> strib an einem anderen Tag
+> never look back
